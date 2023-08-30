@@ -5,7 +5,7 @@
 
 - 📫 How to reach me **harshitkumar9827@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1Sj1Uf01VSxkEp0L3YsLLerUWarU21i1N/view?usp=share_link](https://drive.google.com/file/d/1Sj1Uf01VSxkEp0L3YsLLerUWarU21i1N/view?usp=share_link)
+- 📄 Know about my experiences (https://drive.google.com/file/d/1PFonjQ3MO6Qy1H1LBOFN3J6fzoshP8B_/view?usp=sharing)
 
 - ⚡ Fun fact **I think I am A gamer**
 
